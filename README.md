@@ -1,1 +1,1 @@
-### Olá, sou Gabriel 👋
+### Olá, eu sou Gabriel 👋
